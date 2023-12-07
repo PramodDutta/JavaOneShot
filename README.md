@@ -1,0 +1,1 @@
+Shorts Code in QNA
